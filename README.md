@@ -1,1 +1,1 @@
-MOja priprava na maturita so vsetkymi programmi
+Moja priprava na maturitu so vsetkymi programmi
